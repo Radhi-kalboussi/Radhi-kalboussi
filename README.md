@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning HTML and JAVAscript
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Radhikalboussi@gmail.com
+- Inrested in any work that can help me learn or make money; I am open to everything.
 
 
 <!---
